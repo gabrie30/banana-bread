@@ -11,7 +11,7 @@
 - 2 tsp. baking soda
 - 1 tsp. salt
 - 3 cup mashed bananas, about 6
-- 1 cup sour cream
+- 1 cup sour cream or greek yougurt
 - 2 tsp. vanilla
 
 ## Instructions
