@@ -4,7 +4,7 @@
 
 ## Ingredients
 
-- 1 cup (2 small sticks butter) butter, softened
+- 1 cup (2 small sticks) butter, softened
 - 2 cup sugar
 - 4 eggs, beaten
 - 3 cups flour
