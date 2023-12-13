@@ -4,6 +4,8 @@
 
 ## Ingredients
 
+> Makes two loafs
+
 - 1 cup (2 small sticks) butter, softened
 - 2 cup sugar
 - 4 eggs, beaten
