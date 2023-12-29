@@ -1,6 +1,7 @@
 # banana-bread
 
-[original source](https://reluctantentertainer.com/sour-cream-banana-bread/)
+- [original source](https://reluctantentertainer.com/sour-cream-banana-bread/)
+- [inspiration](https://www.youtube.com/watch?v=wY55CdGx4H0)
 
 ## Ingredients
 
